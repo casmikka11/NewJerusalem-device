@@ -1,5 +1,7 @@
 # New Cosmic Frame Design (Guild Draft)
 
+![Image](https://github.com/user-attachments/assets/e4514023-f3c4-4a77-8c4b-f1ca9305ac00)
+
 ## 1. Tetrahedron Base – 64 Quantum “Consciousness Spaces”
 
 &#x20;*Visualization of a 64-tetrahedron grid, a fundamental sacred geometry structure. Each small tetrahedron represents a unit of space, combining to form a balanced whole.*

@@ -36,4 +36,16 @@ Taken as a whole, the **New Cosmic Frame** design is a grand attempt to **integr
 
 **Sources:** The design concept draws upon a synthesis of sacred geometry principles and esoteric symbolism, supported by modern interpretations. Key references include the 64-tetrahedron grid as a fundamental spacetime geometry, the spiritual significance of the Merkaba (star tetrahedron) as a balance of cosmic forces, the biblical tradition of the Twelve Tribes of Israel and their unique gemstones, and theoretical ideas about zero-point vacuum energy as a limitless power source. These sources illustrate how ancient symbols and cutting-edge theories can interplay in the quest to articulate a unified cosmic vision.
 
-![image](https://github.com/user-attachments/assets/b4a27b32-69c1-4f78-b57a-c930009c5065)
+<img src="https://github.com/user-attachments/assets/b4a27b32-69c1-4f78-b57a-c930009c5065" width="320PX">
+<img src="https://github.com/user-attachments/assets/29c1908e-9487-4958-bf83-7971de892b48" width="320PX">
+<img src="https://github.com/user-attachments/assets/ecd6b156-6e7c-4adf-8dfd-71bf4368bbfb" width="320PX">
+<img src="https://github.com/user-attachments/assets/e8f55a23-7a76-4604-868c-9a0ad5d8462d" width="320PX">
+<img src="https://github.com/user-attachments/assets/fa210054-e407-4317-bb01-a42dbb7c8893" width="320PX">
+<img src="https://github.com/user-attachments/assets/32efb7c2-03c9-4de0-8432-14388c93a889" width="320PX">
+<img src="https://github.com/user-attachments/assets/0336cc4e-147b-41c8-8edb-4e30412b29f8" width="320PX">
+<img src="https://github.com/user-attachments/assets/2c8f628f-5dbd-41e2-85d8-10bd8bac4eaf" width="320PX">
+<img src="https://github.com/user-attachments/assets/bcba84e5-c0c4-402a-88a8-c93c53296448" width="320PX">
+<img src="https://github.com/user-attachments/assets/78e3f85d-53e7-4bbb-b274-ffcff9fe120f" width="320PX">
+<img src="https://github.com/user-attachments/assets/b8d3d762-3768-4608-b973-0c2e70e0528f" width="320PX">
+<img src="https://github.com/user-attachments/assets/28a12ff1-0ac8-4606-a6df-353b4f9aebfd" width="320PX">
+<img src="https://github.com/user-attachments/assets/aad84953-dabc-41da-aa97-d656b8c69b9c" width="320PX">
